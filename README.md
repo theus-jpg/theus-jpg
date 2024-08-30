@@ -4,7 +4,7 @@
 - 🌱 Atualmente estou estuando para um concurso. 
 - 👯 Procuro ter uma boa renda para ter uma boa vida e me manter.
 - 🤔 Estou procurando ajuda com estuos.
-- 💬 Gosto de jogar de futebol
+- 💬 Gosto de jogar futebol
 - 📫 Gosto de jogos
 - ⚡ Gosto de conversar e entrosar co meus amigos.
 
