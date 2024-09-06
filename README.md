@@ -3,10 +3,10 @@
 - 🔭 Atualmente estou sem um emprego fixo.
 - 🌱 Atualmente estou estuando para um concurso. 
 - 👯 Procuro ter uma boa renda para ter uma boa vida e me manter.
-- 🤔 Estou procurando ajuda com estuos.
+- 🤔 Estou procurando ajuda com estudos.
 - 💬 Gosto de jogar futebol
 - 📫 Gosto de jogos
-- ⚡ Gosto de conversar e entrosar co meus amigos.
+- ⚡ Gosto de conversar e entrosar com meus amigos.
 
   ## *CONTATO*
 
